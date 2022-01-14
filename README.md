@@ -13,3 +13,4 @@ video feedback:
 
 youtube video  ( https://youtu.be/0GQWP7BiUjw )
 
+team members: Ermek, Kantemir,Samat
